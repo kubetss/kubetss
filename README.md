@@ -1,16 +1,15 @@
-## Hi there 👋
+# Kubet
 
-<!--
-**kubetss/kubetss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Nếu bạn đam mê cá cược, hãy khám phá Kubet để tìm hiểu về kèo bóng đá, thủ thuật soi cầu và hướng dẫn chơi với tỉ lệ thắng cao. Kubet cung cấp thông tin hữu ích giúp nâng cao khả năng chiến thắng của bạn. Hãy trải nghiệm những điều thú vị từ Kubet! 
 
-Here are some ideas to get you started:
+ #kubet #kubetss 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Website: https://kubet.ss/
+
+https://kubetss.wordpress.com/
+
+https://www.tumblr.com/kubetss
+
+https://x.com/Kubet223037
+
+https://www.pinterest.com/kubetss/
